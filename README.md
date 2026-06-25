@@ -2,4 +2,4 @@ Connect with me for any queries/complaints:
 
 Gmail- checkoutprakhar@gmail.com
 
-Linkedin- https://www.linkedin.com/in/prakhar-kushwaha-ba0a34276/
+Linkedin- https://www.linkedin.com/in/prakhar-kushwaha
